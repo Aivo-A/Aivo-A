@@ -8,7 +8,7 @@
 
 💞️ Open to collaborating on: Test Automation projects, Agile workflows, and QA best practices
 
-📫 Reach me at: a.anslan@gmail.com https://www.linkedin.com/in/aivo-anslan-066748308/
+📫 Reach me at: a.anslan@gmail.com or at linkedin  https://www.linkedin.com/in/aivo-anslan-066748308/
 
 ⚡ Fun fact: When I’m not ensuring software quality, I enjoy spending time with my 3 amazing kids and exploring the world of real estate and investing.
 
